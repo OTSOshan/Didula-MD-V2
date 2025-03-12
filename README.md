@@ -1,1 +1,0 @@
-# Didula-MD-V2
